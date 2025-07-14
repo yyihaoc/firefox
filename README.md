@@ -1,1 +1,1 @@
-# firefox
+lol this project will take a while to start # firefox
